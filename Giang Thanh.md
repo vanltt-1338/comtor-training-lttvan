@@ -1,4 +1,4 @@
-# Training-Course-3
+# Giang Thanh
 
 ## Ví dụ 1
 
