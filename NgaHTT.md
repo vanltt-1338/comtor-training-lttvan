@@ -2,11 +2,11 @@
 
 ## Tên
 
-Nga-chan
+Nga-kun
 
 ## Tuổi
 
-18
+18+
 
 ## Nghề nghiệp
 
