@@ -6,7 +6,7 @@ Nga-kun
 
 ## Tuổi
 
-18+
+24
 
 ## Nghề nghiệp
 
